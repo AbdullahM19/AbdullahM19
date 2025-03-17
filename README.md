@@ -28,6 +28,6 @@ I love crafting immersive experiences and pushing the boundaries of interactive 
 
 ## 📫 Let's Connect!   
 - 💼 **[LinkedIn](https://www.linkedin.com/in/abdullahmuhammad19/)**  
-- 📧 **[Email](abdullah.xzsol@gmail.com)**  
+- 📧 **[Email](mailto:abdullah.xzsol@gmail.com)**  
 
 Thanks for stopping by! 🚀  
